@@ -46,9 +46,9 @@ Contributions are welcome! Please follow these steps:
 
 
 ## 🎯 Connect With Me
-📧 **Email:** ramakrishnasankavaram436@gmail.com  
-🔗 **GitHub:** [ramakrishnasankavaram](https://github.com/ramakrishnasankavaram)  
-💼 **LinkedIn:** [Sankavaram Rama Krishna](https://www.linkedin.com/in/sankavaram-rama-krishna-bb93aa254/)
+📧 **Email:** sana000dasaradha@gmail.com  
+🔗 **GitHub:** https://github.com/dasaradha09
+💼 **LinkedIn:** [Sana Dasaradharami reddy] (www.linkedin.com/in/sana-dasaradharami-reddy-b6027126b)
 
 ---
 
