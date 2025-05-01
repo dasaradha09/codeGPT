@@ -48,7 +48,6 @@ Contributions are welcome! Please follow these steps:
 ## 🎯 Connect With Me
 📧 **Email:** sana000dasaradha@gmail.com  
 🔗 **GitHub:** https://github.com/dasaradha09
-
 💼 **LinkedIn:** [Sana Dasaradharami reddy] (www.linkedin.com/in/sana-dasaradharami-reddy-b6027126b)
 
 ---
